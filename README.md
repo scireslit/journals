@@ -1,1 +1,3 @@
 # journals
+https://www.scireslit.com/
+SciRes Literature LLC. has dedicated a platform to publish innovative original and highest quality journals in the research fields of Medicine, Life Science and Pharmacy with an un-restricted access available open to the global audience. SciRes literature aimed to cover the topics relevant to science and technology are open to all researchers, scientists, and readers around the world. SciRes Literature LLC. manages a portfolio of nearly 60 journals and eBooks covering a wide range of topics in our proposed fields. SciRes Journals undergo a double-blinded peer review process and published in our scholarly journals. All the articles are preserved and archived permanently in our journal's website & available online to the readers.
